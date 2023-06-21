@@ -1,8 +1,8 @@
 # Proyecto-Becario-Mapas
 
 ## Enlaces Mapas
-Diego Gerardo: https://steamcommunity.com/sharedfiles/filedetails/?id=2992354759
-Samir Baidon:
+Diego Gerardo: https://steamcommunity.com/sharedfiles/filedetails/?id=2992354759                                                                                                                                     
+Samir Baidon:                                                                                                                                                                                                       
 Maria Jose:
 
 ## Mod para juntar mapas
