@@ -2,7 +2,7 @@
 
 ## Enlaces Mapas
 Diego Gerardo: https://steamcommunity.com/sharedfiles/filedetails/?id=2992354759                                                                                                                                     
-Samir Baidon:                                                                                                                                                                                                       
+Samir Baidon: https://steamcommunity.com/sharedfiles/filedetails/?id=2992379027                                                                                                                                        
 Maria Jose:
 
 ## Mod para juntar mapas
